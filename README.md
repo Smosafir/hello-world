@@ -1,2 +1,3 @@
 # hello-world
 bruh we finna say "hi" to the world, dog
+My name is Mosafir. Samin Mosafir. I am a senior in high school, but I won't be for long. My graduation is just up ahead and it feels rather bittersweet. As awful as high school was, I must say I learned a lot from it. Once I put the crippling sense of dread aside, it really wasn't that bad. I met some good friends, some good teachers, some good people. But I also came accross a lot of people who I simply could not see eye-to-eye with. I am glad that the people who I ended up calling my friends are the people who I will remember most vividly.
